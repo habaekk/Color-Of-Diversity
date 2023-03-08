@@ -1,1 +1,1 @@
-# artistic_CV
+# Color-Of-Diversity
